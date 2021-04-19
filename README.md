@@ -1,0 +1,1 @@
+Dėstytojas šaunuolis :)
